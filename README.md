@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-financial-analysis
+<br>
+Find the financial statements for the last three years of a publicly held company that has been convicted of issuing misleading and fraudulent financial statements. These are often available from the company’s website, the SEC, or the SNHU Online library. Use the Analytical procedure worksheet to calculate 6 out of the 10 ratios for the last three years. Post the company, the ratios you chose, the result, and a general interpretation of each ratio to the Financial Ratio.
